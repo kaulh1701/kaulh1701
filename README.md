@@ -9,14 +9,7 @@
 - i like formula 1
 - HALAAA MADRIIIID
 - cr7 goat 🐐
-
-
-![](https://media1.tenor.com/m/rGdDYVjul0gAAAAC/cristiano-ronaldo-counting.gif)
-
-
-
-
-
+  
 
 
 ![](https://media1.tenor.com/m/4Luyfj3XLzUAAAAd/cristiano-ronaldo-cool.gif)
